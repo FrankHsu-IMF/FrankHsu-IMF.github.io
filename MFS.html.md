@@ -8,8 +8,9 @@ I basically have been in Hssinchu for my entire life. I was born in Hsinchu, fin
 ## Food 🍟🍖🍣
 I love all I can eat, but I do prefer food to eat with others, like hotpot.
 As for treats, I sometime make breads at home.
+![image](baguette.jpg)
 
 ## Smiles 😆😄😃
 In free time, I enjoy and spend time swimming. I also run tabletop game every two weeks at club.
-
+![image](trpg.jpg)
 
